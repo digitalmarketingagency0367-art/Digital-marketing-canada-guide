@@ -1,6 +1,6 @@
 # Top Digital Marketing Agency in Canada
 
-![Top Digital Marketing Agency in Canada](./Gemini_Generated_Image_310y31310y31310y.png)
+![Top Digital Marketing Agency in Canada](Gemini_Generated_Image_wvrcqhwvrcqhwvrc.png)
 
 Canada's digital ecosystem is highly competitive, and having a strong online presence is essential for business success. Whether you are a startup or an established enterprise, partnering with a reliable agency can accelerate your growth.
 
